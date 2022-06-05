@@ -1,10 +1,1 @@
-CV
-Baranouskaya Kseniya
-+1111111111
-aedbgihrghkjdfnbkdfnhrhknr
-rlehkjhjerjhlrkdfhnlfdnh
-ernhgerjhijerhjrt'jhrjtklhnlrtjnrtjhp
-erkhbjldfblfnvnljfg
-lgfjnhoirtjhjrpt
-;dgjhprjthj
-dlfknhpoirt
+https://GITHUB-USERNAME.github.io/rsschool-cv/cv
